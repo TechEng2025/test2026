@@ -1,4 +1,8 @@
 
+https://www.scaler.com/event/master-agentic-engineering-and-workflow-automation-11b/meeting
+
+
+
 https://us06web.zoom.us/w/81600665185?tk=YgUM-H_EtVtmvKD3rAYhLy-XhxAKobZ59vgKp3QrmaI.DQkAAAAS_8dWYRZscjhEMTJtT1RiU05tZlh2SWFxd3V3AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA&uuid=WN_E4Rpn0N8RvumJZ7OndwFlg
 https://us06web.zoom.us/webinar/register/3617918064924/WN_Etu8Ev3gRXCFyv9UTwhkBQ
 
