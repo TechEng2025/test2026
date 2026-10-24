@@ -1,4 +1,8 @@
 
+https://us06web.zoom.us/w/88540821465?tk=c2q0O4FA3Em2N6ruW2OCoMMOW9TkiMf5Y9PqiKQ02kI.DQkAAAAUnXG32RZUbEdqWlAzLVNOU0FOa01TM282ejR3AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA&uuid=WN_NU5fnwvRRZCphrrYk6qspw
+
+
+
 https://www.scaler.com/event/master-agentic-engineering-and-workflow-automation-11b/meeting
 
 
